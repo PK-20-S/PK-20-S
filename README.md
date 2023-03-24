@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @PK-20-S
 - 👀 I’m interested in Watching Movie,Hacking,Cycling
-- 🌱 I’m currently learning Python3 and Getting Deep in Hacking
-- 💞️ I’m looking to collaborate on Coding
+- 🌱 I’m currently learning aviation ground school
+- 💞️ I’m looking to collaborate on pilot
 - 📫 How to reach me in Dark web 
 
 <!---
